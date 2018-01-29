@@ -7,3 +7,6 @@ Ini adalah Repository Latihan :)
 
 #Menggunakan Link
 [Dan Bo Ru](https://www.facebook.com/profile.php?id=100001794518762)
+
+#Tambah Baris
+Harusnya kamu menambahkan ini
