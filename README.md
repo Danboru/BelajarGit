@@ -10,3 +10,11 @@ Ini adalah Repository Latihan :)
 
 #Tambah Baris
 Harusnya kamu menambahkan ini
+lkfkjdfhgjhdfkjghkfjdh
+
+
+
+dfgkjdfsgkjdfskjgn
+nkjgdfkjhgkjfdhkjghkdf
+
+dfgkjdfgkjfd
